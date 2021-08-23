@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @shamihajannat
+- 👀 I’m interested in cooding,programming,software engineering
+- 🌱 I’m currently learning cooding
+- 💞️ I’m looking to learn more
+- 📫 How to reach me shamihajannat23@gmail.com
